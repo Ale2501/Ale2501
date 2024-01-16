@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Ale2501
+- 👀 I’m interested in informatic engineering 
+- 🌱 I’m currently learning mechanical engineering at Politecnico di Torino...
+- 😄 Pronouns: He/him
